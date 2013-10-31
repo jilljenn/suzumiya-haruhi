@@ -1,7 +1,7 @@
 # Light Novels
 
 - The Melancholy of Haruhi Suzumiya: 100 %
-- The Sighs of Haruhi Suzumiya: 90.1 %
+- The Sighs of Haruhi Suzumiya: 91.4 %
 - The Boredom of Haruhi Suzumiya: 0 %
 - The Disappearance of Haruhi Suzumiya: 0 %
 - The Rampage of Haruhi Suzumiya: 0 %
