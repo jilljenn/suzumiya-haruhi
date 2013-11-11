@@ -2,7 +2,7 @@
 
 - The Melancholy of Haruhi Suzumiya: 100 %
 - The Sighs of Haruhi Suzumiya: 100 %
-- The Boredom of Haruhi Suzumiya: 19.5 %
+- The Boredom of Haruhi Suzumiya: 20.3 %
 - The Disappearance of Haruhi Suzumiya: 0 %
 - The Rampage of Haruhi Suzumiya: 0 %
 - The Wavering of Haruhi Suzumiya: 0 %
