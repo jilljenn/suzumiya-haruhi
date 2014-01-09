@@ -4,7 +4,7 @@
 - The Sighs of Haruhi Suzumiya: 100 %
 - The Boredom of Haruhi Suzumiya: 100 %
 - The Disappearance of Haruhi Suzumiya: 100 %
-- The Rampage of Haruhi Suzumiya: 10.5 %
+- The Rampage of Haruhi Suzumiya: 26.7 %
 - The Wavering of Haruhi Suzumiya: 0 %
 - The Intrigues of Haruhi Suzumiya: 0 %
 - The Indignation of Haruhi Suzumiya: 0 %
