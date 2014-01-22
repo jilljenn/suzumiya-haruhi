@@ -4,7 +4,7 @@ xs# Light Novels
 - The Sighs of Haruhi Suzumiya: 100 %
 - The Boredom of Haruhi Suzumiya: 100 %
 - The Disappearance of Haruhi Suzumiya: 100 %
-- The Rampage of Haruhi Suzumiya: 56.1 %
+- The Rampage of Haruhi Suzumiya: 60 %
 - The Wavering of Haruhi Suzumiya: 0 %
 - The Intrigues of Haruhi Suzumiya: 0 %
 - The Indignation of Haruhi Suzumiya: 0 %
