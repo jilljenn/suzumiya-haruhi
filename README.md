@@ -6,7 +6,7 @@
 - The Disappearance of Haruhi Suzumiya: 100 %
 - The Rampage of Haruhi Suzumiya: 100 %
 - The Wavering of Haruhi Suzumiya: 100 %
-- The Intrigues of Haruhi Suzumiya: 20.7 %
+- The Intrigues of Haruhi Suzumiya: 25.5 %
 - The Indignation of Haruhi Suzumiya: 0 %
 - The Dissociation of Haruhi Suzumiya: 0 %
 - The Surprise of Haruhi Suzumiya I: 0 %
