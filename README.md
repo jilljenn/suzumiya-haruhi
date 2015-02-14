@@ -8,6 +8,6 @@
 - The Wavering of Haruhi Suzumiya: 100 %
 - The Intrigues of Haruhi Suzumiya: 100 %
 - The Indignation of Haruhi Suzumiya: 100 %
-- The Dissociation of Haruhi Suzumiya: 87.7 %
+- The Dissociation of Haruhi Suzumiya: 91 %
 - The Surprise of Haruhi Suzumiya I: 0 %
 - The Surprise of Haruhi Suzumiya II: 0 %
