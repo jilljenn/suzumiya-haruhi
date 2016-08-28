@@ -10,4 +10,4 @@
 - The Indignation of Haruhi Suzumiya: 100 %
 - The Dissociation of Haruhi Suzumiya: 100 %
 - The Surprise of Haruhi Suzumiya I: 100 %
-- The Surprise of Haruhi Suzumiya II: 51.7 %
+- The Surprise of Haruhi Suzumiya II: 74.6 %
